@@ -20,6 +20,8 @@ More work on [deawicaksana.id](https://deawicaksana.id).
 
 ## Master R's Room II
 
+📍 Surabaya, Indonesia
+
 A bedroom concept for a young man who loves cars: black, charcoal and red with gold detail, a gaming and study corner, display shelves for model cars and trophies, and an air conditioner hidden inside a custom automotive-inspired case.
 
 *Know yourself. Own your actions. Define your world.*
