@@ -11,7 +11,7 @@ Interior and spatial design concepts for homes, children's rooms and hospitality
 - [MGL Hostel and Suite — Puerto Vallarta, México](https://deawicaksana.id/2026/10/16/mgl-hostel-and-suite-puerto-vallarta/)
 - [DW Émeraude Family Hotel & Suite](https://deawicaksana.id/2026/10/18/dw-emeraude-family-hotel-suite/)
 - [Master R's Room I](https://deawicaksana.id/2026/10/17/master-rs-room/)
-- [Master R's Room II](#master-rs-room-ii)
+- [Master R's Room II](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
 - [Maison D'Art — Where Art Meets Living](https://deawicaksana.id/maison-dart-where-art-meets-living/)
 - [DW Peach Royale Castle Suite](https://deawicaksana.id/peach-royale-castle-suite/)
 - [Redesign Toilet SPBU — Modern Elegant & Warm Concept](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
@@ -30,7 +30,7 @@ A bedroom concept for a young man who loves cars: black, charcoal and red with g
 
 ![Master R's Room II — automotive AC case concept by Dea Wicaksana](images/master-rs-room-2-ac-case.jpg)
 
-*Concept visualization.*
+*Concept visualization.* Read more: [Master R's Room II on deawicaksana.id](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
 
 ## Links
 
