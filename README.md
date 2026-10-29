@@ -30,6 +30,8 @@ A bedroom concept for a young man who loves cars: black, charcoal and red with g
 
 ![Master R's Room II — automotive AC case concept by Dea Wicaksana](images/master-rs-room-2-ac-case.jpg)
 
+🎬 Video: [Master R's Room II on Instagram](https://www.instagram.com/reel/DeUWcV9hfTQ/)
+
 *Concept visualization.* Read more: [Master R's Room II on deawicaksana.id](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
 
 ## Links
