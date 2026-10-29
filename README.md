@@ -13,6 +13,7 @@ Interior and spatial design concepts for homes, children's rooms and hospitality
 - [Master R's Room I](https://deawicaksana.id/2026/10/17/master-rs-room/)
 - [Maison D'Art — Where Art Meets Living](https://deawicaksana.id/maison-dart-where-art-meets-living/)
 - [DW Peach Royale Castle Suite](https://deawicaksana.id/peach-royale-castle-suite/)
+- [Redesign Toilet SPBU — Modern Elegant & Warm Concept](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
 
 More work on [deawicaksana.id](https://deawicaksana.id).
 
