@@ -14,7 +14,7 @@ Interior and spatial design concepts for homes, children's rooms and hospitality
 - [Master R's Room II](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
 - [Maison D'Art — Where Art Meets Living](https://deawicaksana.id/maison-dart-where-art-meets-living/)
 - [DW Peach Royale Castle Suite](https://deawicaksana.id/peach-royale-castle-suite/)
-- [Redesign Toilet SPBU — Modern Elegant & Warm Concept](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
+- [Redesign Toilet SPBU 64.751.13 Samarinda — Modern Elegant & Warm](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/) — built project
 
 More work on [deawicaksana.id](https://deawicaksana.id).
 
@@ -33,6 +33,20 @@ A bedroom concept for a young man who loves cars: black, charcoal and red with g
 🎬 Video: [Master R's Room II on Instagram](https://www.instagram.com/reel/DeUWcV9hfTQ/)
 
 *Concept visualization.* Read more: [Master R's Room II on deawicaksana.id](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
+
+## Redesign Toilet SPBU 64.751.13 Samarinda
+
+📍 SPBU 64.751.13, Jl. Kadrie Oening, Samarinda, Kalimantan Timur · April–May 2026
+
+A real, completed project, not just a concept. The restrooms and ablution area of the gas station were redesigned and built: walnut wood panels, warm white LED lighting, black marble accents and a red floor turn a public facility into a clean, warm and refined space.
+
+![Redesign Toilet SPBU 64.751.13 — design concept by Dea Wicaksana](images/spbu-6475113-toilet-konsep.jpg)
+
+![Redesign Toilet SPBU 64.751.13 — work in progress](images/spbu-6475113-toilet-proses.jpg)
+
+![Redesign Toilet SPBU 64.751.13 — completed, 13 May 2026](images/spbu-6475113-toilet-hasil.jpg)
+
+*Concept, work in progress, and the completed result (13 May 2026).* Read more: [Redesign Toilet SPBU 64.751.13 on deawicaksana.id](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
 
 ## Links
 
