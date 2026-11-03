@@ -38,11 +38,7 @@ A bedroom concept for a young man who loves cars: black, charcoal and red with g
 
 📍 SPBU DODO 64.751.13, Jl. Kadrie Oening, Samarinda, Kalimantan Timur · May 2026
 
-**EN**
 Gas station toilets are often seen as dirty and neglected. This one-week renovation, completed ahead of a Pertamina assessment, set out to change that perception. The idea was a red carpet experience: warm lighting, a clean and welcoming atmosphere, and a space that makes every visitor feel valued. To keep it that way, the toilet is closed every Wednesday for routine maintenance, a consistent schedule that keeps the standard from slipping.
-
-**ID**
-Toilet SPBU sering dianggap jorok dan tidak terawat. Renovasi satu minggu menjelang penilaian Pertamina ini dibuat untuk mengubah cara pandang itu. Idenya adalah suasana red carpet: pencahayaan hangat, ruang yang bersih dan ramah, serta kesan bahwa setiap pengunjung dihargai. Agar standarnya tetap terjaga, toilet ditutup setiap hari Rabu untuk pemeliharaan rutin secara konsisten.
 
 *Designed by Dea Wicaksana. Realized in May 2026.*
 
