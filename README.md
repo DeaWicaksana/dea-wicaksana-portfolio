@@ -38,7 +38,7 @@ A bedroom concept for a young man who loves cars: black, charcoal and red with g
 
 📍 SPBU DODO 64.751.13, Jl. Kadrie Oening, Samarinda, Kalimantan Timur · May 2026
 
-Gas station toilets are often seen as dirty and neglected. This one-week renovation, completed ahead of a Pertamina assessment, set out to change that perception. The idea was a red carpet experience: warm lighting, a clean and welcoming atmosphere, and a space that makes every visitor feel valued. To keep it that way, the toilet is closed every Wednesday for routine maintenance, a consistent schedule that keeps the standard from slipping.
+Gas station toilets are often seen as dirty and neglected. This project set out to change that perception.
 
 *Designed by Dea Wicaksana. Realized in May 2026.*
 
