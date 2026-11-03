@@ -14,7 +14,7 @@ Interior and spatial design concepts for homes, children's rooms and hospitality
 - [Master R's Room II](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
 - [Maison D'Art — Where Art Meets Living](https://deawicaksana.id/maison-dart-where-art-meets-living/)
 - [DW Peach Royale Castle Suite](https://deawicaksana.id/peach-royale-castle-suite/)
-- [Redesign Toilet SPBU 64.751.13 Samarinda — Modern Elegant & Warm](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/) — built project
+- [Toilet Renovation — SPBU DODO 64.751.13, Samarinda](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/) — built project
 
 More work on [deawicaksana.id](https://deawicaksana.id).
 
@@ -34,19 +34,25 @@ A bedroom concept for a young man who loves cars: black, charcoal and red with g
 
 *Concept visualization.* Read more: [Master R's Room II on deawicaksana.id](https://deawicaksana.id/2026/10/29/master-rs-room-ii/)
 
-## Redesign Toilet SPBU 64.751.13 Samarinda
+## Toilet Renovation — SPBU DODO 64.751.13, Samarinda
 
-📍 SPBU 64.751.13, Jl. Kadrie Oening, Samarinda, Kalimantan Timur · April–May 2026
+📍 SPBU DODO 64.751.13, Jl. Kadrie Oening, Samarinda, Kalimantan Timur · May 2026
 
-A real, completed project, not just a concept. The restrooms and ablution area of the gas station were redesigned and built: walnut wood panels, warm white LED lighting, black marble accents and a red floor turn a public facility into a clean, warm and refined space.
+**EN**
+Gas station toilets are often seen as dirty and neglected. This one-week renovation, completed ahead of a Pertamina assessment, set out to change that perception. The idea was a red carpet experience: warm lighting, a clean and welcoming atmosphere, and a space that makes every visitor feel valued. To keep it that way, the toilet is closed every Wednesday for routine maintenance, a consistent schedule that keeps the standard from slipping.
 
-![Redesign Toilet SPBU 64.751.13 — design concept by Dea Wicaksana](images/spbu-6475113-toilet-konsep.jpg)
+**ID**
+Toilet SPBU sering dianggap jorok dan tidak terawat. Renovasi satu minggu menjelang penilaian Pertamina ini dibuat untuk mengubah cara pandang itu. Idenya adalah suasana red carpet: pencahayaan hangat, ruang yang bersih dan ramah, serta kesan bahwa setiap pengunjung dihargai. Agar standarnya tetap terjaga, toilet ditutup setiap hari Rabu untuk pemeliharaan rutin secara konsisten.
 
-![Redesign Toilet SPBU 64.751.13 — work in progress](images/spbu-6475113-toilet-proses.jpg)
+*Designed by Dea Wicaksana. Realized in May 2026.*
 
-![Redesign Toilet SPBU 64.751.13 — completed, 13 May 2026](images/spbu-6475113-toilet-hasil.jpg)
+![Toilet Renovation SPBU DODO 64.751.13 — design concept by Dea Wicaksana](images/spbu-6475113-toilet-konsep.jpg)
 
-*Concept, work in progress, and the completed result (13 May 2026).* Read more: [Redesign Toilet SPBU 64.751.13 on deawicaksana.id](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
+![Toilet Renovation SPBU DODO 64.751.13 — work in progress](images/spbu-6475113-toilet-proses.jpg)
+
+![Toilet Renovation SPBU DODO 64.751.13 — completed, 13 May 2026](images/spbu-6475113-toilet-hasil.jpg)
+
+*Concept, work in progress, and the completed result (13 May 2026).* Read more: [Toilet Renovation SPBU DODO 64.751.13 on deawicaksana.id](https://deawicaksana.id/redesign-toilet-spbu-modern-elegant-warm-concept/)
 
 ## Links
 
